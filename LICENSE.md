@@ -1,4 +1,4 @@
-
+Experience break a brainrot egg like never before with break a brainrot egg Scripts automatic, the #1 Script. Includes auto-collect and infinite
 
 
 
